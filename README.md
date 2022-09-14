@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nileshnilraj(Nilesh kumar)
 - 👀 I’m interested in playing with keyboard 
-- 🌱 I’m currently learning BSc in computer application
+- 🌱 currently study MSc in computer science
 - 📫 reach me on Email:- nilesh77077nilu@gmail.com
 
 <!---
